@@ -1,2 +1,4 @@
 # somesortofprojectdontmindxdjustatestpleasedontvisititcmonlistentome
-some sort of project dont mind xD just a test please dont visit it cmon listen to me
+
+if you came here from teams then you're welcome
+visit the website <a href="markverb1.github.io/somesortofprojectdontmindxdjustatestpleasedontvisititcmonlistentome">here.</a>
